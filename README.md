@@ -1,4 +1,4 @@
-# Finance
+# Finance & Legal
 
 ## Introduction
 
